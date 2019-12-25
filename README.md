@@ -1,2 +1,2 @@
 # Portfolio
- Shamim IT House Udamy
+ Shamim IT House Udmay
